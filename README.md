@@ -1,3 +1,3 @@
 # gothmetalsabout
 
-idk hiw the fuck to make one of thes
+wip  ill make this soon trust 
